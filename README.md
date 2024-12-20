@@ -1,2 +1,1 @@
-# Uncle-CJ-Message-1
-First Message
+Hello Uncle CJ, I hope your quest to open the mystery box is going well.  For the next step, you will need to visit page _ in _.  I'll give you a hint........ this book is somewhere in your house.  Gooooood luck!
